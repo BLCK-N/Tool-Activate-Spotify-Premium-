@@ -1,3 +1,3 @@
 YOU CAN USE THIS TOOL TO ACTIVATE ⌔ SPOTIFY PREMIUM ⌔ ON YOUR ACCOUNT JUST ON THE PC .
 IF YOU WANT THE  | KEY |  CONTACT ME ON DISCORD : 
-https://discord.com/invite/blacknoche
+https://discord.com/invite/MCzrs4sTMW
